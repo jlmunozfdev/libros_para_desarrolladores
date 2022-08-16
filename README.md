@@ -7,5 +7,10 @@
 
 **Puedes seguirme en Twitter o Instagram en donde comparto recursos que facilitarán tu productividad a la hora de programar:**
 
-+ https://twitter.com/jlmunozfdev
-+ https://www.instagram.com/jlmunozfdev/
+- - -  
+
+<center>
+
+### 👉️ 👉️ 👉️ **Sígueme en Twitter:**  [@jlmunozf](https://twitter.com/jlmunozfdev)
+
+</center>
